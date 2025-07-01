@@ -1,1 +1,1 @@
-# BMI APP BY Karthik Shetty
+# BMI APP BY Karthik Shetty Apps
